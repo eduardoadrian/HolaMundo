@@ -9,3 +9,4 @@ la tecnologia
 disfrutar en familia
 el sr de los anillos, harry potter, stranger things y spider-man
 
+hago reparacion hardware de celulares 

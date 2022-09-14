@@ -10,3 +10,5 @@ disfrutar en familia
 el sr de los anillos, harry potter, stranger things y spider-man
 
 hago reparacion hardware de celulares 
+
+se algo sobre reparacion de heladeras lavarropas e instalacion de aire acondicionado y hago carpinteria metalica.
